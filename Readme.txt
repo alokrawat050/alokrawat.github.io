@@ -1,5 +1,7 @@
 Thanks for reaching me out.
 
-I will update my portfolio soon.
+Please visit the portfolio link.
+https://alokrawat050.github.io/alokrawat.github.io/
 
-Stay Tuned.
+Thanks & Regards,
+Alok Rawat
